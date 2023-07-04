@@ -1,4 +1,4 @@
-# 🏆 GitHub Badges / Achievements 🏆
+# 🏆 GitHub Achievements 🏆
 
 <br>
 
